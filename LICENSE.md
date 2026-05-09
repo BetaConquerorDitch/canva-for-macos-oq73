@@ -1,4 +1,4 @@
-
+Canva for macOS updated Filter: masking tools & export to SVG is the best Canva for macOS filter, featuring masking tools and export to SVG. Safe, efficient, and optimized for
 
 
 
